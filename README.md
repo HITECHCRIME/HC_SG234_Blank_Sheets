@@ -45,10 +45,15 @@ Blank sheets, don't ya figure we (should hide em)
 We surrounded and got some corpses to be laid down
 We so sure they gon go underground
 
-Acog on em, and I turn em to a calico bedrock,
+Acog on em, and I turn em to a calico bedrock, 
 body fallin faster than a domino red bone 
 shawty got her listening to redstar/
 Death Star Shawty Tried to kill me now she gotta go/
+
+one rhyme and fold them two rhyme three rhyme
+one rhyme calling c a b s two rhyme three rhyme
+one rhyme it's like christening to four rhyme
+four rhyme one rhyme got the two rhyme it is time to three rhyme
 
 Blank sheets, don't ya wrap em up (yet)
 Blank sheets, don't ya figure we (should hide em)
