@@ -30,10 +30,10 @@ We so sure they gon go underground
 Bodies on my mind
 Lay em down lay em down
 Make them tight, cut and slice em up
-So they fit compact 
+So they fit compact, second round 
 (on the floor on the floor)
 No blood can spill, traces will be found
-and all we going for right now will be gone, it's fact
+it's fact, all we going for right now will be gone,
 
 Blank sheets are just waiting
 For a causual acquaintance
