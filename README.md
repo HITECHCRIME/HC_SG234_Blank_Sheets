@@ -38,7 +38,7 @@ for the me to care about the fainting
 Blank sheets, don't ya wrap em up yet
 Blank sheets, don't ya figure we should hide em
 We surrounded and got some corpses to be laid down
-We so sure it's gonna go underground
+We so sure they gon go underground
 
 ```
 
