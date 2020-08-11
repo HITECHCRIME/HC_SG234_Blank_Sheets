@@ -30,7 +30,7 @@ We so sure they gon go underground
 Bodies on my mind
 Lay em down lay em down
 Make them tight, cut and slice em up
-So they fit compact
+So they fit compact 
 (on the floor on the floor)
 No blood can spill, traces will be found
 and all we going for right now will be gone, it's fact
