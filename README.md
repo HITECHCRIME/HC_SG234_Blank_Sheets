@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Blank Sheets
 
 **Listen now:** 
 
@@ -12,7 +12,7 @@ Description.
 
 > **Production:**  / **Lyrics:** 
 
-> **Beat:**
+> **Beat:** [FREE] Night Lovell Type Beat Chemical (Prod. NetuH)  Dark Trap Beat
 
 > **Narrative Design:**
 
