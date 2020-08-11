@@ -45,6 +45,11 @@ Blank sheets, don't ya figure we (should hide em)
 We surrounded and got some corpses to be laid down
 We so sure they gon go underground
 
+Acog on em, and I turn em to a calico bedrock,
+body fallin faster than a domino red bone 
+shawty got her listening to redstar/
+Death Star Shawty Tried to kill me now she gotta go/
+
 Blank sheets, don't ya wrap em up (yet)
 Blank sheets, don't ya figure we (should hide em)
 We surrounded and got some corpses to be laid down
