@@ -22,7 +22,7 @@ Description.
 
 ```
 Blank sheets, don't ya wrap em up (yet)
-Blank sheets, don't ya figure we (should hide em)
+Blank sheets, don't ya figure we should hide em
 We surrounded and got some corpses to be laid down
 We so sure they gon go underground
 
@@ -32,8 +32,8 @@ Make them tight, cut and slice em up
 So they fit compact, second round 
 (on the floor on the floor)
 No blood can spill, traces will be found
-it's fact, all we going for right now will be gone,
 
+it's fact, all we going for right now will be gone,
 Blank sheets are just waiting
 For a causual acquaintance
 Pass hits are too factual
