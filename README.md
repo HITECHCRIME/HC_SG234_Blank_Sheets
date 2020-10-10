@@ -30,7 +30,7 @@ Bodies on my mind
 Lay em down lay em down
 Make them tight, cut and slice em up
 So they fit compact, second round 
-(on the floor on the floor)
+(on the floor) [OR TWO TIMES?]
 No blood can spill, traces will be found
 
 it's fact, all we going for right now will be gone,
